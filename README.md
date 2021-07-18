@@ -4,6 +4,6 @@
 后续一直更新
 
 
-< a href="http://www.jjlzy.xyz/">【jjlzy.xyz】</ a>
+http://www.jjlzy.xyz/
 
-< a href="http://www.lajiaoziyuan.xyz/">【lajiaoziyuan.xyz】</ a>
+http://www.lajiaoziyuan.xyz/
