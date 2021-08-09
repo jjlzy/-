@@ -10,5 +10,8 @@ http://www.jjlzy2021.xyz/
 
 http://www.jjlzy2022.xyz/
 
+http://www.jjlzy2023.xyz/
+
+http://www.jjlzy2024.xyz/
 
 http://www.lajiaoziyuan.xyz/
