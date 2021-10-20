@@ -24,23 +24,4 @@ http://www.jjlzy2025.xyz/
 
 http://www.jjlzy2026.xyz/
 
-
-后续更新到
-
-
-http://www.jjlzy2027.xyz/
-
-http://www.jjlzy2028.xyz/
-
-然后新的开始 可能是
-
-http://www.jjl2021.xyz/
-
-http://www.jjl2022.xyz/
-
-http://www.jjl2023.xyz/
-
-http://www.jjl2024.xyz/
-
-
-........
+后续更新会告诉大家，其他网站均是骗子！
